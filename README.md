@@ -1,1 +1,1 @@
-Just download it and opn it !
+Just Open it !
